@@ -1,2 +1,0 @@
-# SeminarEdzhe_Khalif
-Seminar
